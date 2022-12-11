@@ -1,1 +1,1 @@
-https://tresdin12.github.io/rsschool-cv/cv
+https://tresdin12.github.io/rsschool-cv/
